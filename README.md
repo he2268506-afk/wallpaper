@@ -1,2 +1,2 @@
 # wallpaper
-6
+Lively wallpaper Loc
